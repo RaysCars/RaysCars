@@ -17,8 +17,8 @@ Here are some ideas to get you started:
 -->
 
 <sup><sub><sup><sub>
-J6 Capitol Insurrection
-January 6 2020 January 6 United States Capitol attack (false accusation) antifa-like extremist attack of these peaceful people who were protesting:
+J6 Protest (so-called insurrection by democrat party and extreme leftist democrat aligned media)
+January 6 2020 January peaceful protestors falsley targeted for exercising their right to redress their government:
 ali alexander tracy beanz noah benjamin andy biggs lauren boebert mo brooks alex bruesewitz patrick byrne arielle chambers rochelle conwell-williams matt couch michael coudrey chandler crump mikel crump jordan dixon-hamilton cassandra fairbanks mark finchem fleccas michael flynn fogcitymidge tina forte ryan fournier nick fuentes shekinah geist brian gibson diamond west gibson ryan girdusky rudy giuliani lance gooden paul gosar bianca gracia bryson gray marjorie taylor greene mayra gutierrez david harris jr patrick d hampton jodi hice courtney holland abby johnson benny johnson ron johnson vernon jones osigah kakhu anthony kern charlie kirk kimberly klacik amy kremer kylie jane kremer alexandra lains jennifer lynn lawrence david leatherwood mike lindell greg locke jen loh dr gina loudon anna paulina luna mark lutchman megan lutchman michelle malkin samantha marika ed martin danielle rae mcinturff mark meadows andy ngo george papadopoulos cj pearson jack posobiec scott presler ricky rebel mindy robinson olivia rondeau pete sessions ashley stclair dustin stockton brandon straka jason sullivan brandon tatum rose tennent donald trump donald trump jr eric trump joy villa daniel wagner christian walker terrence k williams latinos for trump stopthestealus 
 
 </sub></sup></sub></sup>
